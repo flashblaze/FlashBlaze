@@ -1,13 +1,13 @@
 # Neeraj Lagwankar
 
-I do programming, visual stuff.
+I do programming and visual stuff.
 
 Find me here: :point_down:
 
-## <a href="https://flashblaze.xyz" target="_blank" >Website</a>
+## [Website](https://flashblaze.xyz)
 
-## <a href="https://instagram.com/neeraj_artx" target="_blank">Instagram</a>
+## [Instagram](https://instagram.com/neeraj_artx)
 
-## <a href="https://www.youtube.com/channel/UCQKfDFA1cCAB1Oq5B6Vr7ew" target="_blank">YouTube</a>
+## [YouTube](https://www.youtube.com/channel/UCQKfDFA1cCAB1Oq5B6Vr7ew)
 
-## <a href="https://twitter.com/neeraj_artx" target="_blank">Twitter</a>
+## [Twitter](https://twitter.com/neeraj_artx)
