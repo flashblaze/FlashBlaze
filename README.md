@@ -2,8 +2,6 @@
 
 I do programming and visual stuff.
 
-Find me here: :point_down:
-
 ## [Website](https://flashblaze.xyz)
 
 ## [Instagram](https://instagram.com/neeraj_artx)
